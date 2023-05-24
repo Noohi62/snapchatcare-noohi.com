@@ -1,1 +1,1 @@
-Thanks you for trusting me, it just a prank....;)
+Thank you for trusting me, it just a prank....;)
