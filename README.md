@@ -1,1 +1,1 @@
-# snapchatcare-noohi.com
+Thanks you for trusting me, it just a prank....;)
